@@ -1,3 +1,3 @@
 ## Urna Eletrônica
 
-### Dupla: Caue e limfo
+  Dupla: Caue Venâncio e Pedro Henrique Marques
